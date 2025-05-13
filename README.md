@@ -2,4 +2,5 @@ dniuf ; w2i (friendz) ; @ sanichkaposit ! ! < - tgc
         . .   @ paliceyski_sanya. < - - discord ! 
   . . @ paliceyski_sanya < - - spacehey ! 
 
-https://caterville.wordpress.com/wp-content/uploads/2013/10/535b6-frptbmdhcb8t07b-large.gif
+
+![535b6-frptbmdhcb8t07b-large](https://github.com/user-attachments/assets/2042925f-d11b-47ce-a314-ef126f66da50)
