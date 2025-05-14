@@ -1,7 +1,12 @@
 dniuf ; w2i (friendz) ; @ sanichkaposit ! ! < - tgc
         . .   @ paliceyski_sanya. < - - discord ! 
   . . @ paliceyski_sanya < - - spacehey ! 
-https://github.com/user-attachments/assets/ecbe9c5d-ba40-4b8f-b286-84c5f65d54bd
+
+
+![42df9d71698928b1764a1de141451af3](https://github.com/user-attachments/assets/981d6e17-3ce5-4f99-af8b-718a11ae86ea)
+
+
+
 
 
 More info :
