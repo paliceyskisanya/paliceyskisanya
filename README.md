@@ -1,7 +1,8 @@
 dniuf ; w2i (friendz) ; @ sanichkaposit ! ! < - tgc
         . .   @ paliceyski_sanya. < - - discord ! 
   . . @ paliceyski_sanya < - - spacehey ! 
-![e60d2713a50112fc41321aa7a87cda88](https://github.com/user-attachments/assets/5673278c-84d0-4fc9-ab55-e6aa4af57137)
+https://github.com/user-attachments/assets/ecbe9c5d-ba40-4b8f-b286-84c5f65d54bd
+
 
 More info :
 Very friendly guy, if you not disturbing me. 
