@@ -1,7 +1,5 @@
-dniuf ; w2i (friendz) ; @ sanichkaposit ! ! < - tgc
-        . .   @ paliceyski_sanya. < - - discord ! 
-  . . @ paliceyski_sanya < - - spacehey ! 
-
+. ⌗ infj 9w8 , bisexual >  > aromantic.
+       @ sanyasenchousovich - info ( ознакомьтесь для большей информации . )
 
 киткат тухлая пизда ; 
 
