@@ -1,7 +1,4 @@
 . ⌗ infj 9w8 , bisexual >  > aromantic.
-       @ sanyasenchousovich - info ( ознакомьтесь для большей информации . )
+       @ sanyasenchousovich - info 
 
-киткат тухлая пизда ; 
-
-
-![1693442_moralem_vs-pico](https://github.com/user-attachments/assets/afee7ee1-a870-4a90-9bc7-06c5c44c4eb9)
+![deba5c10dbd2c35ff6d3d3a9138c0f82](https://github.com/user-attachments/assets/52359499-b084-4a5a-a585-bbc216acccad)
